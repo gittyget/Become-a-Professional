@@ -1,1 +1,1 @@
-# Dog Grooming is expensive : Learn to do it yourself!
+# Dog Grooming Is Expensive : Learn To Do It Yourself!
