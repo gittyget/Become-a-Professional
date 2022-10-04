@@ -15,3 +15,4 @@
 - The only real way to improve is to keep practicing. Even if you are scared of messing up your dog's beatiful hair, just remember that <mark>hair grows back</mark> and they probably <mark>don't mind how they look</mark> anyways!
 ### Here's A Before And After Of My Dog 😊
 ![peppa](IMG_4783.jpeg)
+![peppa2](IMG_7563.jpeg)
