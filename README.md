@@ -9,5 +9,5 @@
 - You can also buy ear cleaners, dog toothbrushes, and shampoos in stores like Walmart as well.
 - Next, watch a few videos on how to groom your dog breed. I personally watched [this one](https://www.youtube.com/watch?v=aPTZKqkeRq4) to help me get started.
 ## How You Should Improve?
-- The only real way to improve is to keep practicing. Even if you are scared of messing up your dog's beatiful hair, just remember that ==hair grows back== and they probably ==don't mind how they look== anyways!
+- The only real way to improve is to keep practicing. Even if you are scared of messing up your dog's beatiful hair, just remember that <mark>hair grows back</mark> and they probably ==don't mind how they look== anyways!
 ### Here's A Before And After Of My Dog 😊
